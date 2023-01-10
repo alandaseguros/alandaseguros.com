@@ -1,2 +1,2 @@
 # alandaseguros.com
-Soluciones a tu medida
+La tranquilidad de estar protegido
